@@ -1,1 +1,0 @@
-![image](https://github.com/Isatis-root/QSG-image/blob/main/f72c465c7c18a6f1319bb17da6ebabc.jpg)
